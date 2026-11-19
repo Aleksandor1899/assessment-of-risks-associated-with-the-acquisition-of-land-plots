@@ -1,0 +1,1 @@
+# assessment-of-risks-associated-with-the-acquisition-of-land-plots
